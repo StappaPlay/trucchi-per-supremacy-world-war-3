@@ -22,6 +22,6 @@ function initializePlayer(containerId, sourceUrl) {
 }
 
 // Example usage
-// initializePlayer('player-container', 'https://example.com/video.mp4');
+// initializePlayer('player-container', 'https://www.w3schools.com/html/mov_bbb.mp4');
 
 module.exports = { initializePlayer };
