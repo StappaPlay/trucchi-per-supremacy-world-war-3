@@ -21,8 +21,8 @@
 <p>Grazie ai <strong>trucchi per Supremacy World War 3</strong> di cui ti parlo oggi, puoi avere tutto questo senza dover pagare o passare le notti sveglio a farmare.</p>
 
 <p align="center">
-  <a href="https://tinyurl.com/braciols">
-    <img src="https://github.com/StappaPlay/trucchi-per-supremacy-world-war-3/blob/1490fb38c147cba8797fc75dab2db38e2f9359cd/img/pulsante.png" alt="trucchi per Supremacy World War 3>
+  <a href="https://tinyurl.com/tapplso22">
+    <img src="https://github.com/StappaPlay/trucchi-per-supremacy-world-war-3/blob/1490fb38c147cba8797fc75dab2db38e2f9359cd/img/pulsante.png" alt="trucchi per Supremacy World War 3">
   </a>
 </p>
 
@@ -110,8 +110,8 @@
 <p>Non perdere altro tempo, non restare indietro rispetto agli altri giocatori. <strong>Scarica subito il generatore</strong>, potenzia il tuo esercito e conquista il mondo!</p>
 
 <p align="center">
-  <a href="https://tinyurl.com/braciols">
-    <img src="https://github.com/StappaPlay/trucchi-per-supremacy-world-war-3/blob/1490fb38c147cba8797fc75dab2db38e2f9359cd/img/pulsante.png" alt="trucchi per Supremacy World War 3>
+  <a href="https://tinyurl.com/tapplso22">
+    <img src="https://github.com/StappaPlay/trucchi-per-supremacy-world-war-3/blob/1490fb38c147cba8797fc75dab2db38e2f9359cd/img/pulsante.png" alt="trucchi per Supremacy World War 3">
   </a>
 </p>
 
